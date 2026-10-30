@@ -1,0 +1,1 @@
+Esta Skill ajuda escritores, roteiristas e criadores de jogos a desenvolver ideias iniciais de histórias. Ele auxilia na criação de personagens, mundos, enredos e conflitos, oferecendo sugestões criativas e estruturadas.
